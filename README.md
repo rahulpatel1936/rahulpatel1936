@@ -1,6 +1,6 @@
 ### Hi there 🤓
 
-I'm Rahul, a Masters of Industrial/Organizational Psychology student, researcher, teaching assistant, and consultant from 🇨🇦 Canada 
+I'm Rahul, a PhD Student studying Industrial/Organizational Psychology at the University of Guelph. I am a researcher, teaching assistant, and consultant from 🇨🇦 Canada 
 
 ## ✅ About me in 30 Seconds ✅
 - Studying at the University of Guelph 🐄
